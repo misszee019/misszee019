@@ -4,7 +4,7 @@
 
 🎓 Accounting Student at the University of Lagos (UNILAG)  
 📊 Data Analytics Enthusiast  
-🚀 Trainee at Access NUS-Africa Data Analytics Program  
+🚀 Trainee at Access NUASA Data Analytics Program  
 💡 Passionate about learning, growth, and helping students become better  
 
 ---
@@ -38,9 +38,9 @@
 ---
 
 ### 📫 How to Reach Me
-- TikTok: Glow & Grow Hub  
-- Pinterest: Glow & Grow Hub  
-- (Add LinkedIn when ready)
+- TikTok: deesathecreator
+- Instagram: deesathecreator 
+- LinkedIn: Zainab Adisa
 
 ---
 
